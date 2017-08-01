@@ -1,1 +1,3 @@
 # 170801_b
+
+The Monocle Minute : http://newsletter.monocle.com/t/ViewEmail/r/77FDA75E213476F82540EF23F30FEDED/F7667296584E1A180367819F23434F99
